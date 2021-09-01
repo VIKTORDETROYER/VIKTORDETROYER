@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @VIKTORDETROYER
+- 👀 I’m interested in golf and tennis
+- 🌱 I’m currently learning industrial sciences
